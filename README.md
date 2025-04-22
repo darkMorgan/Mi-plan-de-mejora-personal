@@ -1,3 +1,4 @@
+![Imagen de organización](https://www.cambio16.com/wp-content/uploads/2018/02/organizarse-1-640x380.jpg)
 # 📘 Diario de Debilidades - Parte 1
 
 ## 📉 Debilidades que reconozco hoy
